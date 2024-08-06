@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Emilyfwl
 - 👀 I’m interested in watching videos, reading poems and literature, buying clothes, and working
-- 🌱 I’m currently learning about AI related knowledge because of work requirements，I am a junior AI scholar
+- 🌱 I’m currently learning about AI related knowledge because of work requirements，I am an AI Beginner 
 - 💞️ I’m looking to collaborate on ...- 
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
